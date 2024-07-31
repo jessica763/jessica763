@@ -1,5 +1,4 @@
-## Hi there 👋
-
+## oi eu sou a jessica, amo animais e plantas🌱. Também gosto de andar na rua com meus amigos 💙
 <!--
 **jessica763/jessica763** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
